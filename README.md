@@ -2,4 +2,5 @@
 南航软件工程操作系统课设
 
 SORRY zhuxiaojun (狗头保命)
-有任何疑问请联系beckman004@163.com
+
+有任何提问/疑问 feel frre to contact me:beckman004@163.com
